@@ -1,1 +1,1 @@
-Currently Seeking Internships for Summer 2014
+Please right-click Resume.pdf and 'Save Target As' to download.
